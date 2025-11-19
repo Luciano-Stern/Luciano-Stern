@@ -86,5 +86,7 @@ He complementado mi formación con cursos de posgrado y especialización en:
 
 Si compartís el interés por la conservación, la geomática o los estudios ambientales, ¡podemos conectar!  
 📩 **luciano.stern.almarza@gmail.com**
+📎 [LinkedIn](https://www.linkedin.com/in/luciano-stern-7938402a2/)
+
 
 ---
